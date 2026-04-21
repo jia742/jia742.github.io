@@ -1,9 +1,3 @@
-goodthing_666
-2026-3-5
-因為不知道阿公67是什麼梗去查了一下
-根本超溫馨的我還看完 感覺不是這個..  
-miko.com.tw
-2026-3-5
 欸six seven🗣️🗣️🔥🔥🔥
 欸six seven🗣️🗣️🔥🔥🔥
 six！six！seven🥰🥰
